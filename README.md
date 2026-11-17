@@ -26,7 +26,7 @@
 </td>
 <td width="50%" align="center" valign="middle">
 
-<h3>𝐙𝐖𝐄𝐍𝐇𝐔𝐍𝐓𝐄𝐑 ᶻ 𝗓 𐰁</h3>
+<h3>CHZENU ᶻ 𝗓 𐰁</h3>
 
 <p>tomboy kızlar<3 ⤸</p>
 
